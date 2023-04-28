@@ -1,1 +1,2 @@
-# CharacterStream
+Jhatniphat Sarakal
+# 65130500012
